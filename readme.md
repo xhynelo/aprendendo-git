@@ -1,3 +1,4 @@
 alguma coisa ai
-ele eu fale que ele está me trolando
+ele quer que eu fale que ele está me trolando
 agora ele realmente trolou
+muahahahaha vamos conflitar
